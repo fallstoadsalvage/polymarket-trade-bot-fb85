@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket updated Automation Script: arbitrage-detection & custom-strategies, the #1 automation-script. Includes arbitrage-detection and
 
 
 
